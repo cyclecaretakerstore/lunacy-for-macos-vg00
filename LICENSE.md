@@ -1,4 +1,4 @@
-
+updated Brushes for Lunacy for macOS - typography tools and AI upscaling offers the most advanced Lunacy for macOS brush, with typography tools and AI upscaling. Ideal for
 
 
 
